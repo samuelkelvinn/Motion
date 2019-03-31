@@ -1,1 +1,1 @@
-Hello you're welcome to contribute here
+Hello, you're welcome to contribute here
